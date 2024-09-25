@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/ade1e933-0f8c-4845-93f7-0c97dee9e2d5)
+## 大過 ![image](https://github.com/user-attachments/assets/ade1e933-0f8c-4845-93f7-0c97dee9e2d5) 
 
 大過就字面來說，即大的過錯、太超過的意思。易學上則專指陽過，陽氣過盛。卦義則有頭重腳輕，棟樑不穩，組織虛胖的意味。
 
